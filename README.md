@@ -1,1 +1,0 @@
-# Skriptovacie_jazyky
